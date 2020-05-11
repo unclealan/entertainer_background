@@ -9,7 +9,7 @@
 
 爷爷是中国人民解放军的创始人之一、新四军军长[叶挺]([https://baike.baidu.com/item/%E5%8F%B6%E6%8C%BA/299649](https://baike.baidu.com/item/叶挺/299649))。
 
-![叶大鹰](./images/01-01-yedaying.jpg)![叶挺](./images/01-01-yeting.jpg)
+![叶大鹰](https://bkimg.cdn.bcebos.com/pic/2934349b033b5bb50e9592033ed3d539b700bc89?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)![叶挺](https://bkimg.cdn.bcebos.com/pic/b21c8701a18b87d65eb91310080828381e30fdc2?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)
 
 
 
