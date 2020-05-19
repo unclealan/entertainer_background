@@ -31,7 +31,7 @@
 
 [叶晴晴](https://baike.baidu.com/item/叶晴晴/15088394)，中国香港创作型女歌手，曾参加中国好声音第三季第二期选拔赛。
 
-爷爷是开国元帅[叶剑英](https://baike.baidu.com/item/叶剑英)同志。
+爷爷是十大元帅之一的[叶剑英](https://baike.baidu.com/item/叶剑英)元帅。
 
 ![img](https://bkimg.cdn.bcebos.com/pic/2e2eb9389b504fc207523543e6dde71190ef6d63?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)![img](https://bkimg.cdn.bcebos.com/pic/9213b07eca806538c1661d1c98dda144ad348235?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)
 
@@ -44,6 +44,14 @@
 爷爷是全国人大前委员长[万里](https://baike.baidu.com/item/万里/115915)同志。
 
 ![img](https://bkimg.cdn.bcebos.com/pic/f11f3a292df5e0fe6ff525ab556034a85fdf72af?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)![img](https://bkimg.cdn.bcebos.com/pic/bd315c6034a85edfd5bcf4324f540923dd5475ea?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)
+
+### ## 5
+
+[李谷一]([https://baike.baidu.com/item/%E6%9D%8E%E8%B0%B7%E4%B8%80/889974](https://baike.baidu.com/item/李谷一/889974))，著名歌唱家，代表作《难忘今宵》。
+
+公公是十大将军之一，原海军司令[肖劲光]([https://baike.baidu.com/item/%E8%90%A7%E5%8A%B2%E5%85%89/365182](https://baike.baidu.com/item/萧劲光/365182))大将。
+
+![img](https://bkimg.cdn.bcebos.com/pic/728da9773912b31b35337a4b8418367adab4e171?x-bce-process=image/watermark,g_7,image_d2F0ZXIvYmFpa2U4MA==,xp_5,yp_5)![img](https://bkimg.cdn.bcebos.com/pic/5366d0160924ab1884d917643cfae6cd7a890b91?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)
 
 
 
