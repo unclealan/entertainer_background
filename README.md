@@ -51,7 +51,19 @@
 
 公公是十大将军之一，原海军司令[肖劲光]([https://baike.baidu.com/item/%E8%90%A7%E5%8A%B2%E5%85%89/365182](https://baike.baidu.com/item/萧劲光/365182))大将。
 
+
+
 ![img](https://bkimg.cdn.bcebos.com/pic/728da9773912b31b35337a4b8418367adab4e171?x-bce-process=image/watermark,g_7,image_d2F0ZXIvYmFpa2U4MA==,xp_5,yp_5)![img](https://bkimg.cdn.bcebos.com/pic/5366d0160924ab1884d917643cfae6cd7a890b91?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)
+
+### ## 6
+
+[柯蓝]([https://baike.baidu.com/item/%E6%9F%AF%E8%93%9D/17954](https://baike.baidu.com/item/柯蓝/17954))，演员、模特、主持人，曾在《人民的名义》中饰演陆亦可。
+
+爷爷是开国上将[钟期光]([https://baike.baidu.com/item/%E9%92%9F%E6%9C%9F%E5%85%89/1672416](https://baike.baidu.com/item/钟期光/1672416))将军。
+
+![img](https://bkimg.cdn.bcebos.com/pic/810a19d8bc3eb135e63d48c4a91ea8d3fc1f44d3?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)![img](https://bkimg.cdn.bcebos.com/pic/0df3d7ca7bcb0a46e13b93526863f6246b60afbb?x-bce-process=image/resize,m_lfit,w_268,limit_1/format,f_jpg)
+
+
 
 ## 中国香港篇
 
